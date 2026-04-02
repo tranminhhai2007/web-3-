@@ -10,3 +10,18 @@ DFB DFB
 DFBDF
 BDFB
 D FB
+d fbdfbdf
+bd
+fb
+df
+bd
+fb
+df
+b
+dfb
+d
+fb
+dfbdfbdfb
+dfb
+df
+bdf
