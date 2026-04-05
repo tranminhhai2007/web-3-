@@ -2,14 +2,14 @@
 bat qs đầu từ đâu?
 cần kt gì ?
 tiếp tục traend
-sac sdv dfb dfk df
-d fdfbv df dfbvdf
- dfv dfv dfvd dfv dfv
-  dsfvdf vdfv dfvd fvdfvdf d
-  sd sdvsdv sdv sdv sdv sd 
-  sd s s svsv sdvvvs v sdvs v s
-  v svd sdv sdv sdv sdv svsdv sv 
-  vs vsvdsvsvsvd svd svd sv svdsdv sv
+sac sdv dfb dfk dfgfmh fgmh fgm fg
+d fdfbv df dfbvdfgfm fgmh 
+fgm fgm dfv dfv dfvd dfv g fhm dfv
+gf m fgm   dsfvdf vdfv dfvd fvdfvdf d
+gfm fgm  sd sdvsdv sdv sdv sdv sd 
+fg mfgm   sd s s svsv sdvvvs v sdvs v s
+fgm fgm   v svd sdv sdv sdv sdv svsdv sv 
+fg mfgm   vs vsvdsvsvsvd svd svd sv svdsdv sv
 edsev dfv dfbv dfbdfbdfbdfb dfb df df bdfb dfbdfb df b
 sd sd vsdv sdv sdv sdv sdv sdv sdv 
 sdvsdv sdvsdvsd vsdv sdvsdvsdv  sdv v sdvsd vsdv 
