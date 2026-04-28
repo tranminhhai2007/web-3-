@@ -16,8 +16,5 @@ tạo acc x mới cho hnay
 cretor acc github vs X 
 viet tieu su, tinhs points
 hnay hoc dc gi?
-mai hoc gi?học toán cao cấp logic.
-cretor acc github vs X 
-viet tieu su, tinhs points
-tạo acc x mới cho hnay
-
+Verification Failed
+Must have at least 2 verified external connections (current: 1)
